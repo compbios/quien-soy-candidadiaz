@@ -1,4 +1,4 @@
-# Hola soy **Candida Diaz** 
+# Hola soy **Candida Diaz** :v:
 
 ## Sobre mi
 ### - Soy *medica internista*, estudiante de epidemiologia clinica de la PUJ
