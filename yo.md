@@ -10,7 +10,7 @@
 ### - Pertenezco al grupo de enfermedades infecciosas de la Universidad Nacional 
 ### - Temas de interes: Resistencia bacteriana, VIH/SIDA, modelamiento de enfermedades infecciosas
 
-![Imagen de interrogación](https://pin.it/3zcVAoV.gif) 
+![Imagen de interrogación](https://tenor.com/view/microbe-objects-joypixels-microorganism-bacteria-gif-17449132) 
 
 
 
