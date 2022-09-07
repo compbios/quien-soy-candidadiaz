@@ -1,4 +1,4 @@
-Hola soy **Fabián Gil**
+Hola soy **Candida Diaz**
 
 
 
@@ -6,5 +6,5 @@ Hola soy **Fabián Gil**
 
 
 
-Soy *estadístico* y Bioestadístico
+Soy *medica internista* y estudiante de epidemiologia clinica
 
